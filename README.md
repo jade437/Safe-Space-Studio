@@ -1,2 +1,2 @@
 # Safe-Space-Studio
-Survivor  Empowerment 
+ Suvivors Empowerment 
